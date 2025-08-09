@@ -2,9 +2,7 @@
 # RAMAN KISHORE C (212223080041) MECH
 # Write a bedtime story about a bat who is afraid of dark for children aged 5 to 7.
 
-Alright, here’s a sweet, bedtime-friendly story for a 5–7-year-old about a bat who’s afraid of the dark — with just enough warmth, humor, and a happy ending to send them to sleep smiling.
 
----
 
 **🦇 "Benny the Bat Who Was Afraid of the Dark"**
 
